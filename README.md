@@ -18,4 +18,6 @@ I have similar idea like microverse but they come to existance in the first hand
 ##### Learn More :
 ## https://sushen.github.io/microverseai/
  
-similar company : https://explaineverything.com/partners/
+similar company : 
+https://explaineverything.com/partners/
+https://leadschool.in/schoolreferral/
